@@ -1,3 +1,5 @@
+# WEEWOO WEEWOO WEEWOO WEEWOO WEEWOO
+
 # IT IS HELL. SAVE MEEEEEEEEE
 
 # It is not Wednesday, dudes. It is Thursday 28.04.24 15:14:40
