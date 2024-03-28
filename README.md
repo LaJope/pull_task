@@ -1,3 +1,12 @@
+Woop-woop! That's the sound of da police
+Woop-woop! That's the sound of da beast
+Woop-woop! That's the sound of da police
+Woop-woop! That's the sound of da beast (Yes indeed)
+Woop-woop! That's the sound of da police
+Woop-woop! That's the sound of da beast
+Woop-woop! That's the sound of da police
+Woop-woop! That's the sound of da beast (Yes indeed)
+
 # WEEWOO WEEWOO WEEWOO WEEWOO WEEWOO
 
 # IT IS HELL. SAVE MEEEEEEEEE
