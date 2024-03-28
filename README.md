@@ -1,3 +1,5 @@
+# Maksim is BAD.
+
 # Miron is good.
 
 # 15:29 Please, watch https://www.youtube.com/watch?v=dXqtrHJAqVM
